@@ -19,5 +19,5 @@ https://www.aiapipk.com/<br>
 https://www.hvoy.ai/<br>
 https://www.oken.ai/<br>
 
-<h3>尽量别选0.1x以下的!真的会赤道屎!不知道token来源!</h3><br>
+<h3>尽量别选0.1x以下的!真的会赤道屎!不知道token来源!只有中转站赚到钱了,所有人都是受害者!</h3><br>
 
